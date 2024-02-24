@@ -1,5 +1,5 @@
 # Hi There! I Am Dhruv Kaushik
-I am **17** years old, from India, preparing for Joint Entrance Exams..
+I am **17** years old.
 
 ## ✉️ Mail me at:
 dhrvkaushikk@gmail.com
